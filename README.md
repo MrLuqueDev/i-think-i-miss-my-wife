@@ -1,2 +1,1 @@
-# i-think-i-miss-my-wife
-hello
+![yeah white text](https://cdn.discordapp.com/attachments/1129430276171382856/1292507574461140992/image.png?ex=6703fcfb&is=6702ab7b&hm=0a2cea033f8236cad308d7af904cbd0769996eae03cc979300da143ef77088ea&)
